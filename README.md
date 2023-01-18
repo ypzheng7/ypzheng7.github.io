@@ -1,6 +1,6 @@
 # My Study Abroad in Singapore!
 
-### About Author
+### About Me
 
 Hello! 
 
